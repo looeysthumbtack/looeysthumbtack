@@ -1,1 +1,1 @@
-https://cdn.discordapp.com/attachments/1382292769560727565/1404103738431504475/Untitled38_20250810220616.png?ex=6899f902&is=6898a782&hm=d1ec79ca8a54f6d82514847bd3d1b6df42b877a2c468f4805f5cb1c74247e74a&
+this is a WIP (I have no clue how to work these )
